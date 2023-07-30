@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project
   genesis web 3  exelence space for developer 
 - 📫 How to reach me
-      . telegram - gitocoder 
+      . telegram - @gitocoder 
       . E-mail - surafel.fine@gmail.com
       ...
 
